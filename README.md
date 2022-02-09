@@ -1,3 +1,9 @@
 # Ingredients made from scratch
-* [Cream Cheese](https://www.youtube.com/watch?v=oIVRzfYPEW0)
-* [Cultured Butter](https://www.youtube.com/watch?v=e5ebze7Gof4) and some [background](http://www.webexhibits.org/butter/index.html)
+
+## Milk Products
+- [Cream Cheese](https://www.youtube.com/watch?v=oIVRzfYPEW0)
+- [Cultured Butter](https://www.youtube.com/watch?v=e5ebze7Gof4) and some [background](http://www.webexhibits.org/butter/index.html)
+- [Condensed Milk](https://www.youtube.com/watch?v=Q0bWkv8RkEI)
+
+## Masalas
+- [Maggi Masala](https://www.youtube.com/watch?v=k0cRgTT1YbE)
